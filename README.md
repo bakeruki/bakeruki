@@ -1,4 +1,4 @@
-hi, im luq.
+hi, im luq, a depressed university of toronto student.
 
 i like making stuff
 
